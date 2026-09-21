@@ -1,1 +1,0 @@
-# mijnadhdstudy
